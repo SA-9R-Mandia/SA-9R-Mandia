@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on idk
 - 📫 How to reach me idk
 - 😄 Pronouns: 
-- ⚡ Fun fact: i like to draw
+- ⚡ Fun fact: idk
 
 <!---
 SA-9R-Mandia/SA-9R-Mandia is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
